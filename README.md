@@ -1,1 +1,0 @@
-# funabashi-testaneio5
